@@ -8,6 +8,10 @@
 
 **Publications**: https://orcid.org/0000-0003-2457-9195
 
+View My [Curriculum Vitae](RachelDomagalski_CurriculumVitae.pdf)
+
+View My [Resume](RachelDomagalski_Resume.pdf)
+
 ### SUMMARY
 Mathematician with PhD expected in August 2021, skilled in social network analysis, graph theory, and combinatorics. Passionate about communicating science to the public. Looking for opportunities to use my analytical skills and creatively problem solve in a collaborative industrial setting. 
 
